@@ -10,4 +10,4 @@
 | Keven Alex      |                  |
 | Naiara Medeiros |                  |
 | Pedro Malaquias |                  |
-| Victor Rafael   |                  |
+| Victor Rafael   | Seg, Ter e Sex — 14:00 às 17:00 |
